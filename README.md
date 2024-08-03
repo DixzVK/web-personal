@@ -1,2 +1,2 @@
 # web-personal
-aku malas ngoding
+aku bukan programmer bang🙏🏻
